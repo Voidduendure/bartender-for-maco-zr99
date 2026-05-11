@@ -1,4 +1,4 @@
-
+secure Bartender for macOS Helper | performance-boost + duplicate-finder offers the most advanced Bartender for macOS helper, with performance-boost and duplicate-finder. Ideal
 
 
 
